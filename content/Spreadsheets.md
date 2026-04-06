@@ -1,0 +1,1 @@
+planilhas foram desenvolvidas por  Frankston e  Bricklin (1977-8) para o [[Apple]] II quando eles eram estudantes  [[Massachusetts-Institute-of-Technology]] e [[Harvard]] .

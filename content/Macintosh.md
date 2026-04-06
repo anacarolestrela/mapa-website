@@ -1,0 +1,1 @@
+inspirado no [[Xerox PARC]]

@@ -1,0 +1,1 @@
+[[windows]] inspirado no [[Macintosh]] 

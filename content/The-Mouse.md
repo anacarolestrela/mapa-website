@@ -1,0 +1,1 @@
+Desenvolvido em 1965  no [[Stanford-Research-Laboratory]]num projeto incentivado pela [[NASA]] se tornou popular após ser adotado pelo [[Xerox PARC]] em1970. depos foi adotado pela [[Apple]] e pela [[Macintosh]]
